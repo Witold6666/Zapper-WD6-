@@ -3,3 +3,4 @@ Po tym zapperze i schemacie użyciu tego zappera jest się jak Biologiczny lub C
 Z spiralą można podłączyć procesor M5Stack jako zparogramowany procesor post mocy, reaktor łukowy ładowarka indukcyjna lub zbroja Iron Men god aby mieć post formę fizyczną czyli post kondycję i post zdrowie fizyczne lub mieć post moce jak nanokombinezon ale sam zapper to lek i analizator z procesorem M5Stack można mieć post moce i post kondycję fizyczną. 
 Z Procesorem M5Stack można się szybko regenerować. 
 Lepsze od tabletek i noża. 
+Zapper ten może też być drukarką kwantową. 
