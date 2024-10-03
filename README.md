@@ -4,3 +4,4 @@ Z spiralą można podłączyć procesor M5Stack jako zparogramowany procesor pos
 Z Procesorem M5Stack można się szybko regenerować. 
 Lepsze od tabletek i noża. 
 Zapper ten może też być drukarką kwantową. 
+Wośp i NGO nikomu nie pomugł jest i są lewi kradną organy i kasę z lotto i podatków i wypłat populacji jak Nasa.
