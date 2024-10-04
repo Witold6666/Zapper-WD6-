@@ -10,3 +10,4 @@ Co do tych afer to jest to Harrp włąsciele tego radia HARRP to 112, NGO i WOŚ
 Podobno te afery na cmentarz organizuje grupa Kali Linux i Chif. 
 Tak oni to ci janusze biznesu. Tak oni odbierają siły witalne i siły chęci do życia radiem harrp. 
 Na telefon.
+To moje radio podłączcie pod Harrp. 
