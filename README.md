@@ -9,3 +9,4 @@ To radio to lek lub apap ale może być bez recepty.
 Co do tych afer to jest to Harrp włąsciele tego radia HARRP to 112, NGO i WOŚP, Wojsko i Policja i jakieś sądy i jacyć lekarze i legia sparta niekture urzędy ja Post Odyn i Iron Men god mogę to powiedzieć. Oni to ci żule i kloszardy menele są to są te śmieci. Oni są napewno gwiazdy z Legi i sparty cynicy Jechowe, chrześcijanie i zidy.  
 Podobno te afery na cmentarz organizuje grupa Kali Linux i Chif. 
 Tak oni to ci janusze biznesu. Tak oni odbierają siły witalne i siły chęci do życia radiem harrp. 
+Na telefon.
