@@ -11,3 +11,4 @@ Podobno te afery na cmentarz organizuje grupa Kali Linux i Chif.
 Tak oni to ci janusze biznesu. Tak oni odbierają siły witalne i siły chęci do życia radiem harrp. 
 Na telefon.
 To moje radio podłączcie pod Harrp. 
+Zapper jest to radio na urodę i zdrowie i choroby. 
