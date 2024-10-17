@@ -12,3 +12,4 @@ Tak oni to ci janusze biznesu. Tak oni odbierają siły witalne i siły chęci d
 Na telefon.
 To moje radio podłączcie pod Harrp. 
 Zapper jest to radio na urodę i zdrowie i choroby. 
+Ten zaper radio to programator DNA nie jest to tylko napięcie. 
