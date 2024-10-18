@@ -14,3 +14,4 @@ To moje radio podłączcie pod Harrp.
 Zapper jest to radio na urodę i zdrowie i choroby. 
 Ten zaper radio to programator DNA nie jest to tylko napięcie. 
 Ten zapper progamator leczy starość i wszystkie choroby 1 wersja z głośnikiem też leczy 2 WD wersja też leczy różnice to schematy urządzenia i algorytmy i procesory rozwiązania. 
+Progamiści medyczni i farmeceuci i lekarze ich badania są o kant dupy do obicia. Moje zappery działają skutecznie w 100% nawet na raka. 
